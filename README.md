@@ -1,2 +1,2 @@
 # belajar
-Buruh pengajar
+Butuh pengajar
